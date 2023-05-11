@@ -1,1 +1,1 @@
-My first readme
+hard work pay
